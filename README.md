@@ -10,4 +10,4 @@ Hello, my name is Diana and i was born on 20th of August, 1998. I am currently a
 ### Hobbies
 During my free time I try to do more creative things (like drawing, singing, writing, photography etc).I also spend quite a lot of time at the gym. Plus, I am interested in asian culture and recenty took up korean.
 ### Favourite food
-Spicy food wich has rich flavour. Meat.
+Spicy food wich has rich flavour. Meat. Like this: ![](https://hellomisspoo.files.wordpress.com/2013/08/tteokbokki-5.jpg)
