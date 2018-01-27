@@ -13,3 +13,6 @@ During my free time I try to do more creative things (like drawing, singing, wri
 Spicy food wich has rich flavour. Meat. Like this: ![](https://hellomisspoo.files.wordpress.com/2013/08/tteokbokki-5.jpg) ![](http://www.dinnerwithjulie.com/wp-content/uploads/2015/02/Screen-shot-2015-02-08-at-11.28.46-PM-585x586.png)
 ### Plans for the future
 Right now I`m not so sure about my plans for the future. The only thing I can is do my best and try not to lose myself. 
+##### Links
+Vk:<https://vk.com/id268342425>
+Facebook:<https://www.facebook.com/profile.php?id=100006445727910>
