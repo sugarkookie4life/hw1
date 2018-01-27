@@ -11,3 +11,5 @@ Hello, my name is Diana and i was born on 20th of August, 1998. I am currently a
 During my free time I try to do more creative things (like drawing, singing, writing, photography etc).I also spend quite a lot of time at the gym. Plus, I am interested in asian culture and recenty took up korean.
 ### Favourite food
 Spicy food wich has rich flavour. Meat. Like this: ![](https://hellomisspoo.files.wordpress.com/2013/08/tteokbokki-5.jpg) ![](http://www.dinnerwithjulie.com/wp-content/uploads/2015/02/Screen-shot-2015-02-08-at-11.28.46-PM-585x586.png)
+### Plans for the future
+Right now I`m not so sure about my plans for the future. The only thing I can is do my best and try not to lose myself. 
