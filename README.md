@@ -1,5 +1,5 @@
 # Diana (student)
-1|2
+Title|Information
 ---|:---:
 Born|August 20,1998 (age 19)
 Occupation|Student
